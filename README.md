@@ -2,7 +2,7 @@
 
 # $${\color{#2d3054} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF768D&center=true&width=435&lines=%E3%82%9BI+get+this+feeling+%2C%2C+%E3%82%9B;%E3%82%9Bwhen+I'm+in+love+!+%E3%82%9B)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF88A3&center=true&width=435&lines=%E3%82%9Bhe+loves+me+not%2C%2C+%E3%82%9B;%E3%82%9Bhe+loves+me+!+%E3%82%9B)](https://git.io/typing-svg)
 
 
 $${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
@@ -22,7 +22,8 @@ $${\color{#2d3054} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦}$$
 
 $${\color{#662330} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 
-(https://dandys1fan.straw.page/)
+
+[![tWDZaGJ](https://github.com/user-attachments/assets/307309ff-4dcd-4e88-87ad-899cd4bdfcb3)](https://dandys1fan.straw.page/)
 
 
 <details>
