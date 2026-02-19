@@ -23,9 +23,11 @@ $${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
 $${\color{#ff85d3} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 
 
-
-
 [![ssQHzwX](https://github.com/user-attachments/assets/b8b776e8-3925-46f4-9e5d-a87cbed0460f)](https://dandys1fan.straw.page/)
+
+
+<img width="500" height="83" alt="picmix com_2629344" src="https://github.com/user-attachments/assets/cc996fb3-a311-45a5-8d4a-3b57f37b7688" />
+
 
 
 <details>
