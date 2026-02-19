@@ -1,6 +1,6 @@
 <div align=center>
 
-# $${\color{#2d3054} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$$
+# $${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF88A3&center=true&width=435&lines=%E3%82%9Bhe+loves+me+not%2C%2C+%E3%82%9B;%E3%82%9Bhe+loves+me+!+%E3%82%9B)](https://git.io/typing-svg)
 
@@ -18,16 +18,17 @@ $${\color{#f8d4eb} ʚ𖦹ɞ \space dani \space ! \space ⋆⑅˚₊}$$
 
 $${\color{#feb0e2} ༘⋆ \space They \space / \space Them \space :: \space He \space / \space She \space ִᰔᩚ}$$
 
-$${\color{#2d3054} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦}$$
+$${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
 
-$${\color{#662330} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
+$${\color{#ff85d3} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 
 
-[![tWDZaGJ](https://github.com/user-attachments/assets/307309ff-4dcd-4e88-87ad-899cd4bdfcb3)](https://dandys1fan.straw.page/)
+
+[![ssQHzwX](https://github.com/user-attachments/assets/b8b776e8-3925-46f4-9e5d-a87cbed0460f)](https://dandys1fan.straw.page/)
 
 
 <details>
-<summary> $${\color{#2d3054} ♯ \space about \space me \space !}$$ </summary>
+<summary> $${\color{#ff73b0} ♯ \space about \space me \space !}$$ </summary>
 
 ![S89ceBR](https://github.com/user-attachments/assets/9e0e0892-e0bb-4713-859d-89ec23e0486d)
 ₊˚ ┊ I have been Dandys #1 fan since game release so I love to call myself Dandy!! Dandy plays a big part in my heart 𐔌՞. .՞𐦯
@@ -42,7 +43,7 @@ $${\color{#662330} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 </details>
 
 <details>
-<summary> $${\color{#bababa} ✘ \space dni \space !}$$ </summary>
+<summary> $${\color{#fc539d} ✘ \space dni \space !}$$ </summary>
 
 ![et5llyF](https://github.com/user-attachments/assets/eb8e3f7b-08f6-49e9-88d1-eadcc5dde207)
 ₊˚ ┊ DNI if you talk about anything sex related or sexual. Will be blocked (◞‸ ◟)💧
@@ -56,7 +57,7 @@ $${\color{#662330} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 </details>
 
 <details>
-<summary> $${\color{#662330} ⌖ \space extras \space !}$$ </summary>
+<summary> $${\color{#fc537e} ⌖ \space extras \space !}$$ </summary>
 
 ![S89ceBR](https://github.com/user-attachments/assets/9e0e0892-e0bb-4713-859d-89ec23e0486d)
 ₊˚ ┊ I love playing roblox horrors with my friends! so if you have any good horror games whisp to me freely!!!
