@@ -1,5 +1,7 @@
 <div align=center>
 
+<img width="700" height="450" alt="Untitled43_20260218224803" src="https://github.com/user-attachments/assets/06d9eb51-2f43-4cbb-b0ff-9f1af9165572" />
+
 # $${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF88A3&center=true&width=435&lines=%E3%82%9Bhe+loves+me+not%2C%2C+%E3%82%9B;%E3%82%9Bhe+loves+me+!+%E3%82%9B)](https://git.io/typing-svg)
@@ -7,6 +9,7 @@
 
 $${\color{FF768D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
 
+<img width="171" height="137" alt="Cupid_Dragon__fliter--cherry-icecream__channel--red__mode--screen" src="https://github.com/user-attachments/assets/db2beaa6-08b1-46ad-96a5-9f7fc5e95fe3" />
 
 
 ![Static Badge](https://img.shields.io/badge/phantom-phantom?logo=undertale&logoColor=23ff91a4&label=cupid&labelColor=grey&color=%23f8d4eb)
